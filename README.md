@@ -42,7 +42,7 @@ All platforms support manual backlink submission — no automation or black-hat 
 
 ## 📤 How to Use This List
 
-1. Choose websites from the list based on niche or DA.
+1. Choose any [website]([url](https://veb-sayt.az/)) from the list based on niche or DA.
 2. Manually create profiles or submit URLs as instructed.
 3. Make sure to add unique and relevant content when possible.
 4. Monitor your backlink profile using tools like Ahrefs, Moz, or Google Search Console.
@@ -60,3 +60,6 @@ Have more high DA/PA **free backlink sites** to share? Feel free to open a pull 
 Star ⭐ this repository to keep this **free backlink list** handy and receive updates as new domains are added.
 
 ---
+
+Referance: Ttendtoread().com
+Follow me: https://yusibov.az/
