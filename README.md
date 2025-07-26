@@ -62,4 +62,4 @@ Star ⭐ this repository to keep this **free backlink list** handy and receive u
 ---
 
 Referance: Ttendtoread().com
-Follow me: https://yusibov.az/
+Follow me: https://yusibov.az/ | https://veb-sayt.az/ 
