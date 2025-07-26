@@ -1,6 +1,6 @@
-# 🔗 500+ Free High DA/PA Dofollow Backlink Sites
+# 🔗 800 Free High DA/PA Dofollow Backlink Sites
 
-Welcome to the ultimate list of **500+ free backlink websites** to boost your SEO rankings. This repository contains a hand-picked collection of **high DA/PA dofollow backlink sites** including forums, profile creation sites, **free directories**, and other powerful resources for building quality backlinks.
+Welcome to the ultimate list of **800 free backlink websites** to boost your SEO rankings. This repository contains a hand-picked collection of **high DA/PA dofollow backlink sites** including forums, profile creation sites, **free directories**, and other powerful resources for building quality backlinks.
 
 ---
 
